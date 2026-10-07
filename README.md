@@ -1,0 +1,2 @@
+# premium-thread-inlay-001-thread-inlay-decorative-trim
+Juggling scattered thread collections, rod measurements, and design inspiration across multiple notebooks? The Thread Inlay &amp; Decorative Trim Rod Craft Hub consolidates your entire creative workflow into one organized, searchable Notion workspace.  This template eliminates the chaos of managing thread colors, inlay techniques, trim rod specificatio
